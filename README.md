@@ -1,4 +1,4 @@
-# Ají de Gallina Peruano
+# Ají de Gallina Peruano.
 
 ## Ingredientes:
 
